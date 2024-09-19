@@ -1,9 +1,9 @@
-- 👋 Olá, sou @Sovinissi
+- 👋 Olá, sou a Sofia
 - 👀 Estou interessado em administração
-- 🌱 Atualmente estou aprendendo 
+- 🌱 Atualmente estou aprendendo robótica
 - 💞️ Procuro colaborar com tudo
-- 📫 Como entrar em contato comigo Sovinssi@gmail.com
+- 📫 Como entrar em contato comigo @Sovinssi@gmail
 - 😄 Pronomes: Ela\dela
-- habilidades: proativa
-Soviniss/Soviniss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+- habilidades: proativa e responsável
+Eu sou uma pessoa bem calma,com intuito de aprender e se divertir.
+amo a Aghata veyr
