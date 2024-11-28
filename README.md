@@ -1,4 +1,4 @@
-- 👋 Olá, sou a Sofia estefani e tenho 16anos.
+- 👋 Olá, sou a Sofia estefani e tenho 16 anos.
 - 👀 Estou interessado em administração.
 - 🌱 Atualmente estou aprendendo robótica.
 - 💞️ Procuro colaborar com o crescimento da empresa.
